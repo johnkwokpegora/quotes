@@ -1,0 +1,1 @@
+**John Kwok (Chinese: 郭安俊)** is a Chinese entrepreneur and investor. He is active in the **cryptocurrency and blockchain space**, frequently sharing his insights on industry developments, market trends, and philosophical reflections on his X account `@johnkwokpegora`.
